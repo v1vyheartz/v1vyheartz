@@ -1,13 +1,12 @@
-https://i.postimg.cc/fRRfz01C/tilltop.png
+𐙚 ✧ •｡˚⋅⋆ ˚｡ᡣ𐭩
 ◟ ͜  ˘˘　⸝⸝　!~e~!ylül　𝟖𝟗:𝟕𝟎　she / her　⊱  ۫ ׅ ✧
 જ⁀➴　girl　⌞ girl / kisser ⌝　⏖　ᐩ 𓈒  ͜ ◞
 𓏼 ◜𓈒　 　lesbian　૮ ˶ᵔ ᵕ ᵔ˶ ა　minor　Ꮺ⊹
-https://i.postimg.cc/qM0GFFL9/tillmid.png
+.・。.・゜✭・
 (˶°ㅁ°)　𝚑𝚢𝚙𝚎𝚛𝚜𝚎𝚡𝚞𝚊𝚕　⏖ 
 　.　𓂃 　₎₎
 ⸝ ⸝　multifandom　/　no dni　‹3　ɪ ʟɪᴋᴇ ᴄᴀᴛs　──★ ˙ ̟ !!!
-https://i.postimg.cc/QxbqZqYV/tillbtm.png
-
+૮꒰◞ ˕ ◟꒱ა. ݁₊ ⊹ . ݁˖ . ݁
 <!--
 **lukazlovie/lukazlovie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
