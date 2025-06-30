@@ -1,4 +1,4 @@
-[Link Text](https://lukazlovie.straw.page)
+[Strawpage Text](https://lukazlovie.straw.page)
 
 
 
