@@ -1,1 +1,1 @@
-![ivantill](images/my_photo.jpg)
+![](images/my_photo.jpg)
