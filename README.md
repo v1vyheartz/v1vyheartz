@@ -1,4 +1,4 @@
-[Strawpage](https://lukazlovie.straw.page)
+[Straw](https://lukazlovie.straw.page)      [pronoun](https://en.pronouns.page/@Lukazlovie) 
 
 
 
