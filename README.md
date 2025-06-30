@@ -3,6 +3,3 @@
 
 
 
-
-![Album Art](https://open.spotify.com/track/2ltpz0N6g4A7TwwLFk9biF?si=plKUDIzARMSmcFOV5QIO2A)
-**Cure** by **AKUGETSU, PARK BYEONG HOON**
