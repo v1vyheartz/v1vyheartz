@@ -1,1 +1,0 @@
-![](images/my_photo.jpg)
