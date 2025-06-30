@@ -8,7 +8,7 @@
 )
 
 
-![Ivantill](https://images-ext-1.discordapp.net/external/0dG0xw43xwPjzu-pL0FXLX_O4JtgC9xBp1VSbZURSXc/https/media.tenor.com/uiGS32Wv4mMAAAPo/luka-luka-alien-stage.mp4)
+!(https://images-ext-1.discordapp.net/external/0dG0xw43xwPjzu-pL0FXLX_O4JtgC9xBp1VSbZURSXc/https/media.tenor.com/uiGS32Wv4mMAAAPo/luka-luka-alien-stage.mp4)
 
 
 
