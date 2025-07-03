@@ -1,3 +1,6 @@
+![Alt text](https://media.discordapp.net/attachments/1390312570275102733/1390316632001478769/image-from-rawpixel-id-16191105-png.png?ex=6867d0c3&is=68667f43&hm=0441aaec83b588e79a13017d8e5479cf1832086c424f1f7762564d253b3a3fe6&)
+
+
 ![Spotify Now Playing](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=avjz40jgsjeiv5bgzoeqoaztt&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=true)
 
 
