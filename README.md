@@ -14,4 +14,3 @@
 
 
 
-![Spotify](https://open.spotify.com/user/avjz40jgsjeiv5bgzoeqoaztt?si=h9qRdtH6RG6YDgMwl-dv5g)
