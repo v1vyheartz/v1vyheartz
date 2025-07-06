@@ -23,6 +23,7 @@
 ![Description](https://c.tenor.com/CJH1aqXS-ksAAAAC/tenor.gif)
 
 
-![Alt text](https://media.discordapp.net/attachments/1390312570275102733/1391319466947645611/IMG-20250706-WA0000.jpg?ex=686b76ba&is=686a253a&hm=f9ab0fa168b9ceef1f83619a595ea68861657bf1d3222c292d9e499df4581b63&)
+
+
 
 
