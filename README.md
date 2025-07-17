@@ -21,7 +21,7 @@
 
 ![Description](https://c.tenor.com/CJH1aqXS-ksAAAAC/tenor.gif)
 
-
+![alt text](https://media.discordapp.net/attachments/1390312570275102733/1391319466947645611/IMG-20250706-WA0000.jpg?ex=6877fcfa&is=6876ab7a&hm=2bdc812d7955584558a82e333d51812cea629de3b1b6ad76206ba5cacc40feeb&)
 
 
 
