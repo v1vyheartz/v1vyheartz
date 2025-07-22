@@ -25,6 +25,7 @@ heyoo i’m **vivy** (she/her)
 ## PLS DON'T :
 - steal my skins without even asking like… hello??
 - be a weirdo (u know the type)
+- pls don't be so dry.. ok? 🥹
 
 ## DO :
 - int if chill
