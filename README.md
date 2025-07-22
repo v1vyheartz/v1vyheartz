@@ -47,9 +47,3 @@ heyoo i’m **vivy** (she/her)
 > `– vivy.exe shutting down…!`
 
 ---
-
-```diff
-+ this is green
-- this is red
-! this is yellow
-# this is gray
