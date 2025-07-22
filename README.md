@@ -3,21 +3,47 @@
 ![Spotify Now Playing](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=avjz40jgsjeiv5bgzoeqoaztt&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=true)
 
 
-[#straw](https://lukazlovie.straw.page)      
- [#pronoun](https://en.pronouns.page/@Lukazlovie) 
 
+# ≽^• ˕ • ྀི≼ vivy.txt // aka your fav !!! 
 
+![Header](https://c.tenor.com/901vEQW9h-IAAAAd/tenor.gif) 
 
+##  ❥ about me
+heyoo i’m **vivy** (she/her) 
+, currently obsessed w: alien stage, , , 
 
+> ღ everyone can int!! (unless ur weird in the bad way — no homophobes, pedos, etc. Ohh also I dont really feel comfortable with adults)
 
-![Alt text](https://media.discordapp.net/attachments/1390312570275102733/1394940543657709639/Baslksz368_20250630094948.png?ex=6878a31e&is=6877519e&hm=07b6f6e2261f363c1c36399ae4a07afc4977a1d7852d400e3758f8a658bd6488&
-)
+---
 
+##  ʚrandom things ?? :
+- i do FREAKY jokes a lot okay?.. 
+- Idgaf abt ships I ship everything (not pro/dark-shipping etc..ur not cool man !) !! 
+- random art for fandoms i hyperfix on,,, I'm not good at art tho !! 
 
+---
 
-𝙴𝚟𝚎𝚛𝚢𝚘𝚗𝚎 𝚌𝚊𝚗 𝙸𝙽𝚃!!! (𝚎𝚡𝚌𝚎𝚙𝚝 𝚙𝚎𝚍𝚘𝚙𝚑𝚒𝚕𝚎𝚜, 𝚑𝚘𝚖𝚘𝚙𝚑𝚘𝚋𝚒𝚌 𝚙𝚙𝚕, 𝚎𝚝𝚌.) 𝙳𝚘𝚗𝚝 𝚌𝚘𝚟𝚎𝚛 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜!! 𝚊𝚜𝚔 𝚏𝚘𝚛 𝙲 + 𝙷 𝚘𝚛 𝚝𝚊𝚔𝚒𝚗𝚐 𝚒𝚗𝚜𝚙𝚘. 𝚃𝚑𝚊𝚝'𝚜 𝚊𝚕𝚕 ‹𝟹
+## PLS DON'T :
+- steal my skins without even asking like… hello??
+- be a weirdo (u know the type)
 
+## do:
+- interact if chill
+- live with love
+- cry w me over fictional characters🥹
 
+---
 
-![Description](https://c.tenor.com/CJH1aqXS-ksAAAAC/tenor.gif)
+## !! links & socials
+- ᰔ tiktok: [`@.v1vy0`](https://www.tiktok.com/@.v1vy0?_t=ZS-8yEcPQv89VH&_r=1)
+- ᰔᩚ discord: ask for it if u cool
+- ʚ straw: I'M RMKING GUYS!! 
+- ʚ pron: yea.. Im RMKING.. 
 
+---
+
+> that’s it lol 😓  
+> stay slay, stay safe, drink water or else  
+> `– vivy.exe shutting down…!`
+
+---
