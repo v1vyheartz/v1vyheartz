@@ -46,3 +46,6 @@ heyoo i’m **vivy** (she/her)
 > `– vivy.exe shutting down…!`
 
 ---
+
+
+![alt text]https://media.tenor.com/XGAxTd1hTKAAAAAi/needy-girl-overdose-needy-streamer-overload.gif
