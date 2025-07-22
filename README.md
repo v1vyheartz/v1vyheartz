@@ -47,3 +47,5 @@ heyoo i’m **vivy** (she/her)
 > `– vivy.exe shutting down…!`
 
 ---
+
+<span style="color:pink;">this is pink</span>
