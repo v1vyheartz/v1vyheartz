@@ -43,7 +43,7 @@ heyoo i’m **vivy** (she/her)
 ---
 
 > that’s it lol 😓  
-> stay slay, stay safe, drink water or else  
+> stay alive, stay safe, drink water or else  
 > `– vivy.exe shutting down…!`
 
 ---
