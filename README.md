@@ -27,8 +27,8 @@ heyoo i’m **vivy** (she/her)
 - steal my skins without even asking like… hello??
 - be a weirdo (u know the type)
 
-## do:
-- interact if chill
+## DO :
+- int if chill
 - live with love
 - cry w me over fictional characters🥹
 
