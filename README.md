@@ -1,3 +1,8 @@
+![Alt text](https://media.discordapp.net/attachments/1390312570275102733/1390316632001478769/image-from-rawpixel-id-16191105-png.png?ex=68784b83&is=6876fa03&hm=0752a14f4cf27f11645f6063d6fdea0e6897688a972f32be394fe836ea6f7069&)
+
+![Spotify Now Playing](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=avjz40jgsjeiv5bgzoeqoaztt&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=true)
+
+
 # ≽^• ˕ • ྀི≼ vivy.txt // aka your fav !!! 
 
 ![Header](https://c.tenor.com/901vEQW9h-IAAAAd/tenor.gif) 
