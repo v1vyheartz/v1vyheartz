@@ -1,8 +1,3 @@
-![Alt text](https://image-from-rawpixel-id-16191105-png) 
-![Spotify Now Playing](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=avjz40jgsjeiv5bgzoeqoaztt&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=true)
-
-
-
 # ≽^• ˕ • ྀི≼ vivy.txt // aka your fav !!! 
 
 ![Header](https://c.tenor.com/901vEQW9h-IAAAAd/tenor.gif) 
@@ -35,7 +30,7 @@ heyoo i’m **vivy** (she/her)
 
 ## !! links & socials
 - ᰔ tiktok: [`@.v1vy0`](https://www.tiktok.com/@.v1vy0?_t=ZS-8yEcPQv89VH&_r=1)
-- ᰔ discord: ask for it if u cool
+- ᰔᩚ discord: ask for it if u cool
 - ʚ straw: I'M RMKING GUYS!! 
 - ʚ pron: yea.. Im RMKING.. 
 
@@ -46,5 +41,3 @@ heyoo i’m **vivy** (she/her)
 > `– vivy.exe shutting down…!`
 
 ---
-
-![Header](https://media.tenor.com/XGAxTd1hTKAAAAAi/needy-girl-overdose-needy-streamer-overload.gif) 
