@@ -55,4 +55,3 @@ heyoo i’m **vivy** (she/her)
 ![alt text](https://media.tenor.com/XGAxTd1hTKAAAAAi/needy-girl-overdose-needy-streamer-overload.gif) 
 
 
-![alt text](https://media.tenor.com/Qn3HlK_9qN8AAAAi/yippee-cutecore-omgkawaiiangel-eee.gif) 
