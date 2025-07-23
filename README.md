@@ -1,3 +1,5 @@
+! [Header](https://tenor.com/view/aesthetic-cute-pink-gif-26487213]
+
 ![Alt text](https://media1.tenor.com/m/e-hxJJ4teakAAAAC/pink-anime-aesthetic-anime.gif) 
 
 ![Spotify Now Playing](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=avjz40jgsjeiv5bgzoeqoaztt&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=true)
