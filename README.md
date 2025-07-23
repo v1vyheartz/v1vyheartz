@@ -1,4 +1,4 @@
-![Header](https://tenor.com/view/aesthetic-cute-pink-gif-26487213) 
+![Header](https://media.tenor.com/JCnvb5By8qIAAAAj/banner-devider.gif) 
 
 ![Alt text](https://media1.tenor.com/m/e-hxJJ4teakAAAAC/pink-anime-aesthetic-anime.gif) 
 
