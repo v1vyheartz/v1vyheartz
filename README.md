@@ -26,6 +26,7 @@ heyoo i’m **vivy** (she/her)
 - steal my skins without even asking like… hello??
 - be a weirdo (u know the type)
 - pls don't be so dry.. ok? 🥹
+- please don't get me for RP I only do it with my friend's and it's so rare
 
 ## DO :
 - int if chill
