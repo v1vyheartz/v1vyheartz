@@ -24,7 +24,7 @@ heyoo i’m **vivy** (she/her)
 
 ##  ʚrandom things ?? :
 - i do FREAKY jokes a lot okay?.. 
-- Idgaf abt ships I ship everything (not pro/dark-shipping etc..ur not cool man !) !! 
+- Idgaf abt ships I ship everything !! 
 - random art for fandoms i hyperfix on,,, I'm not good at art tho !! 
 - i can be a meanie most of the time... 
 ---
