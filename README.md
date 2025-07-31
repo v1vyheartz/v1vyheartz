@@ -46,7 +46,7 @@ heyoo i’m **vivy** (she/her)
 - ᰔ tiktok: [`@.v1vy0`](https://www.tiktok.com/@.v1vy0?_t=ZS-8yEcPQv89VH&_r=1)
 - ᰔᩚ discord: ask for it if u cool
 - ʚ straw: [`# straw`](https://v1vyheartz.straw.page) 
-- ʚ pron: yea.. Im RMKING.. 
+- ʚ pron: [`#pron`]( https://en.pronouns.page/@V1vyheartz) 
 
 ---
 
