@@ -34,7 +34,7 @@ heyoo i’m **vivy** (she/her)
 - be a weirdo (u know the type)
 - pls don't be so dry.. ok? 🥹
 - please don't get me for RP I only do it with my friend's and it's so rare
-- I HATEEE M PREG LUKA. PLS DNI.
+- I HATEEE M PREG LUKA OR MALEWIFE LUKA. PLS DNI.
 
 ## DO :
 - int if chill
