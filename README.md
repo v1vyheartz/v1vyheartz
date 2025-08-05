@@ -1,1 +1,6 @@
+# ≽^• ˕ • ྀི≼ vivy.txt // aka your fav !!! 
+
+
+![Spotify Now Playing](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=avjz40jgsjeiv5bgzoeqoaztt&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=true)
+
 ![Alt text](https://files.catbox.moe/ox2jbo.png)
