@@ -1,4 +1,3 @@
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=v1vyheartz.lukaling)
 
 # ≽^• ˕ • ྀི≼ vivy.txt // aka your fav !!! 
 
