@@ -11,7 +11,7 @@
 ![alt text](https://files.catbox.moe/92py7w.gif).      ︵︵      .ᐟ  ‘‘çünkü insanlar, tüm bu acının kaynağı, biz sömürmeden sevmeyi beceremeyen varlıklarız.,,      丶   𐑞 ![alt text](https://files.catbox.moe/kqu8tv.gif)
 
 ◟    ᛝ   
-[#ata](https://vivyheartz.atabook.org)   𓏵   [#straw](https://v1vyheartz.straw.page)       𓏵   [#pronoun](https://en.pronouns.page/@V1vyheartz)﹒        ,
+[#ata](https://vivyheartz.atabook.org)   𓏵   [#straw](https://v1vyheartz.straw.page)       𓏵   [#pronoun](https://en.pronouns.page/@V1vyheartz)﹒        ,![alt text](https://files.catbox.moe/njrqn1.gif) 
 
 ![Alt text](https://media.tenor.com/PaYEcjSLOp8AAAAi/miku.gif)
 
