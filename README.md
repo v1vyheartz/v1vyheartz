@@ -7,4 +7,4 @@
 
 ![Alt text](https://media.tenor.com/PaYEcjSLOp8AAAAi/miku.gif)
 
-![alt text](https://files.catbox.moe/nfrw7e.png) 
+![alt text](https://files.catbox.moe/500tgu.png) 
