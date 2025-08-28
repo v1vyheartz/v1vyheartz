@@ -1,4 +1,4 @@
-![alt text](https://files.catbox.moe/wtc7eh.png) 
+ 
 
 ![alt text](https://files.catbox.moe/2l5fyy.png) 
 
@@ -7,4 +7,4 @@
 
 ![Alt text](https://media.tenor.com/PaYEcjSLOp8AAAAi/miku.gif)
 
-![alt text](https://files.catbox.moe/500tgu.png) 
+ 
