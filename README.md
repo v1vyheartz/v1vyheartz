@@ -8,7 +8,7 @@
       .   .   .   ⌗ ＬＵＫＡ ḳịṇṇịẹ
  ᴄʜᴇ -  𝘊𝘏𝘌𝘌𝘙𝘚   ᛝ   ıllı  ³ᵗᵉᵉⁿ 𔓘
 
-◟    ᛝ [#ata](https://vivyheartz.atabook.org)   𓏵   [#straw](https://v1vyheartz.straw.page)       𓏵   [#pronoun](https://en.pronouns.page/@V1vyheartz)﹒        ,![alt text](https://files.catbox.moe/njrqn1.gif) 
+◟    ᛝ [#ata](https://vivyheartz.atabook.org)   𓏵   [#straw](https://lukamlily.straw.page)       𓏵   [#pronoun](https://en.pronouns.page/@V1vyheartz)﹒        ,![alt text](https://files.catbox.moe/njrqn1.gif) 
 
 ![Alt text](https://media.tenor.com/PaYEcjSLOp8AAAAi/miku.gif)
 
