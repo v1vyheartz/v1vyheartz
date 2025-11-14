@@ -12,4 +12,4 @@
 '' 𐔌   ᛝ   mine , empty mind .ᐟ  𐂯 ''
 
 
-![alt text](https://files.catbox.moe/ibfz1u.png)) 
+![alt text](https://files.catbox.moe/ibfz1u.png)
