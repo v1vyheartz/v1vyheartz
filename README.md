@@ -12,8 +12,3 @@
 '' 𐔌   ᛝ   mine , empty mind .ᐟ  𐂯 '' ![alt text](https://files.catbox.moe/9sfqg2.gif) 
 
 
-![alt text](https://files.catbox.moe/ibfz1u.png)
-'' 𐔌   ᛝ   mine , empty mind .ᐟ  𐂯 ''
-
-
-![alt text](https://files.catbox.moe/ibfz1u.png)
