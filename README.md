@@ -1,4 +1,4 @@
-![alt text](https://litter.catbox.moe/4etr6wfls2nectn7.jpg) 
+![alt text](https://files.catbox.moe/9nju7u.jpg) 
 
 ![Spotify profile](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31dxdlyokwmhx2bwgyk6muszswoa&cover_image=true&theme=novatorem&show_offline=true&background_color=ed3481&interchange=true&bar_color=ff8abe&bar_color_cover=true)
 
